@@ -15,7 +15,6 @@
 
 - 📄 Resume [https://flowcv.com/resume/tv32c703g5](https://flowcv.com/resume/tv32c703g5)
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
